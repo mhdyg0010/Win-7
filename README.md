@@ -1,3 +1,4 @@
+![Screenshot_۲۰۲۳-۱۰-۱۹-۰۰-۰۱-۱۱-۵۱۲_com instagram android](https://github.com/dovnel/Win-7/assets/145661945/03547b46-4fe9-4132-b50e-3b8451d0b310)
 ------------------
 System Information
 ------------------
